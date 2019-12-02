@@ -1,5 +1,5 @@
-**Sincere.
-Honest.
-Understanding.
-Loyal.
+_Sincere.
+_Honest.
+**Understanding.
+_Loyal.
 Truthful.
